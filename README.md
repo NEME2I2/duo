@@ -1,4 +1,4 @@
-NON
+lol
 Champs-élysées, mon frère, nouvelle tre-mon, doudoune Moncler
 Et-et-et té-ma la carte bancaire, à Anvers, les diamantaires
 J'sais même plus comment faire, j'té-ma tous vos commentaires
