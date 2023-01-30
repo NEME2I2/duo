@@ -1,3 +1,4 @@
+
 lol
 Champs-élysées, mon frère, nouvelle tre-mon, doudoune Moncler
 Et-et-et té-ma la carte bancaire, à Anvers, les diamantaires
